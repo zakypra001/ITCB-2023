@@ -1,2 +1,2 @@
 # ITCB-2023
-MUhammad Zaky Praditama (416)
+Muhammad Zaky Praditama (416)
